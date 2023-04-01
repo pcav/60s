@@ -37,3 +37,7 @@ E c'è una cucina bella grande
 *Federico Gianoli*
 
 Se invece preferisci le colline toscane c'è la tenuta ferracci a polcanto, i costi sono simili e ci sono letti e una gigantesca tensostruttura riscaldata
+
+## Siros, Grecia
+
+Raggiungibile in aereo ad Atene+traghetto o aereo per l'isola.
